@@ -15,6 +15,14 @@ Atuo de forma **colaborativa**, **comunicativa** e **orientada a resultados**, c
 
 ---
 
+## 🧠 Graduação
+
+### **Análise e Desenvolvimento de Sistemas** – Centro Universitário do Distrito Federal  
+📍 *Brasília, Distrito Federal*  
+📅 *Conclusão* *Jun de 2025*  
+
+---
+
 ## 💼 Experiência Profissional
 
 ### **Assistente Administrativo** – Atacadão Dia a Dia  
